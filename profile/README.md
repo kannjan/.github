@@ -26,7 +26,7 @@ _Can you dig it?_
 
 1. In Kannjan Laga is the law
 2. Do not for no cause, Luther not
-3. Be ye of one spirt and mind, not soul nor will
+3. Be ye of one mind, not will
 4. Why run? Why sprint?
 5. Leadest thou with mettle, Swan
 6. Respect the work, contemplate the doer, fail not to require
