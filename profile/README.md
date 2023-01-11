@@ -32,4 +32,4 @@ _Can you dig it?_
 7. Few is plenty.
 8. Dissent is a blessing, too much dissent is a disease.
 9. Feign and faux are foes, them reject.
-10. Master the small matters things first.
+10. Master the small matters first.
