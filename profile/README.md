@@ -1,4 +1,5 @@
 # KANNJAN
+_Potestate Et Magna_
 
 Gothic kannjan "to make known."
 
