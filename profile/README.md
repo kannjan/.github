@@ -8,7 +8,7 @@ Laga, the Kannjan book of laws.
 Laga is filled with Lagus. Each Lagu represent a thought or principle to be followed.
 
 
-## The Kannjan Trooper
+## The Kannjan Knight
 Oh, that these mine eyes would cease from failing me.\
 Oh, that these mine hands would breed wholly nano-beasts.\
 Drudgery is ember and thought for nought fire.\
